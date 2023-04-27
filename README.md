@@ -1,0 +1,2 @@
+# pistaskudra
+dirsā pista skudra
